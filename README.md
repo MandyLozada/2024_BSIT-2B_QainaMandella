@@ -1,1 +1,1 @@
-# 2024_BSIT-2B_QainaMandella
+# 2024_BSIT-2-B_QainaMandella
